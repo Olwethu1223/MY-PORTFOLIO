@@ -49,8 +49,9 @@ Intention to grow into frontend development, UI/UX design, and digital content s
 
 
 ✨ Let’s Connect
+
 Instagram: @amahle_yaniik
 
-TikTok: @yolwethu_yaniik
+TikTok: @olwethu_yaniik
 
 GitHub: @Olwethu1223
